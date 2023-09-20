@@ -1,1 +1,0 @@
-Spaghetti kitchen 🍝 of the orienteering club SK Brno Žabovřesky
